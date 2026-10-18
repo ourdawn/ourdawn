@@ -17,6 +17,8 @@ mentally unwell
 
 ```
 
+${\color{#542610}\text{꒰}}$ [sign mi wall](https://walloftext.co/triple-kill) ${\color{#542610}\text{꒱}}$
+
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3c290cb8-0d6f-4e3e-a502-9ee7cb2163f7" />
 
