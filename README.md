@@ -6,7 +6,6 @@
 ${\color{#D2B5B6}\text{꒰}}$ [sign mi wall](https://walloftext.co/triple-kill) ${\color{#D2B5B6}\text{꒱}}$
 
 ```
-<div align="center">
 
 below 14
 
@@ -15,8 +14,6 @@ mostly dniuf. feel free to c*h though
 i int when i want to
 
 mentally unwell
-
-</div>
 
 ```
 
