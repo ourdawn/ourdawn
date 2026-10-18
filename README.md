@@ -1,6 +1,6 @@
 <div align="center">
 
-
+![Visitors](https://api.visitorbadge.io/api/visitors?path=ourdawn&label=kills&labelColor=%23720000&countColor=%23000000&style=flat-square)
 
 ${\color{#c11d1d}\text{im below 14}}$
 
