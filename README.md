@@ -1,7 +1,5 @@
 <div align="center">
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e4d1592e-ee8c-445d-b227-6e5ea68d4ec3" />
-
 
 
 ${\color{#c11d1d}\text{im below 14}}$
