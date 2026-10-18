@@ -6,9 +6,9 @@ ${\color{#c11d1d}\text{im below 14}}$
 
 ${\color{#c11d1d}\text{mostly dniuf. feel free to c*h though}}$
 
-${\color{#c11d1d}\text{i int when i want to}}$
+${\color{#720000}\text{i int when i want to}}$
 
-${\color{#c11d1d}\text{mentally unwell}}$
+${\color{#720000}\text{mentally unwell}}$
 
 
 
