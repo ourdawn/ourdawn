@@ -7,7 +7,7 @@
 
 ```
 
-${\color{#542610}\text{im below 14}}$
+im below 14
 
 mostly dniuf. feel free to c*h though
 
