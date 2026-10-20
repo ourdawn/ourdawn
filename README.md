@@ -16,6 +16,6 @@ ${\color{#720000}\text{mentally unwell}}$
 
 ${\color{#720000}\text{꒰}}$ [sign mi wall](https://walloftext.co/triple-kill) ${\color{#720000}\text{+}}$ [and mi ata](https://ppathetic.atabook.org/) ${\color{#720000}\text{꒱}}$
 
-${\color{#720000}\text{꒰}}$ [info+pronouns](https://pronouns.cc/@killl) ${\color{#720000}\text{꒱}}$
+${\color{#720000}\text{꒰}}$ [info 𓏻 pronouns 𓏻 dni](https://pronouns.cc/@killl) ${\color{#720000}\text{꒱}}$
 
 </div>
