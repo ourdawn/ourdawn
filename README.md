@@ -16,16 +16,14 @@ ${\color{#720000}\text{dont associate me wit my friends drama}}$
 
 
 <details>
-  <summary><b> insert text </b></summary>
+  <summary><b> ${\color{#720000}\text{mi links}}$ </b></summary>
   <br>
-
-Insert text
-
-</details>
-
 
 ${\color{#720000}\text{꒰}}$ [sign mi wall](https://walloftext.co/triple-kill) ${\color{#720000}\text{+}}$ [and mi ata](https://ppathetic.atabook.org/) ${\color{#720000}\text{꒱}}$
 
 ${\color{#720000}\text{꒰}}$ [info 𓏻 pronouns 𓏻 dni](https://pronouns.cc/@killl) ${\color{#720000}\text{꒱}}$
+
+</details>
+
 
 </div>
