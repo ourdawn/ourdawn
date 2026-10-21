@@ -16,8 +16,7 @@ ${\color{#720000}\text{dont associate me wit my friends drama}}$
 
 
 <details>
-  <summary><b> 
-    $\text{\color{#c11d1d} my links}$ </b></summary>
+  <summary><b> me links
   <br>
 
 ${\color{#720000}\text{꒰}}$ [sign mi wall](https://walloftext.co/triple-kill) ${\color{#720000}\text{+}}$ [and mi ata](https://ppathetic.atabook.org/) ${\color{#720000}\text{꒱}}$
