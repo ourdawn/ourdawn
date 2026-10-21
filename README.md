@@ -8,7 +8,7 @@ ${\color{#c11d1d}\text{꒰ mostly dniuf. feel free to c*h though ꒱}}$
 
 ${\color{#720000}\text{꒰ i int when i want to} ꒱}$
 
-${\color{5c0000}\text{꒰ mentally unwell ꒱}}$
+${\color{#5c0000}\text{꒰ mentally unwell ꒱}}$
 
 ${\color{#5c0000}\text{꒰ dont associate me wit my friends drama ok ꒱}}$
 
