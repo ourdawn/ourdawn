@@ -14,6 +14,16 @@ ${\color{#720000}\text{dont associate me wit my friends drama}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wyqii2yv25vqqczmqmjgl54kf4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=7a0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+
+<details>
+  <summary><b> insert text </b></summary>
+  <br>
+
+Insert text
+
+</details>
+
+
 ${\color{#720000}\text{꒰}}$ [sign mi wall](https://walloftext.co/triple-kill) ${\color{#720000}\text{+}}$ [and mi ata](https://ppathetic.atabook.org/) ${\color{#720000}\text{꒱}}$
 
 ${\color{#720000}\text{꒰}}$ [info 𓏻 pronouns 𓏻 dni](https://pronouns.cc/@killl) ${\color{#720000}\text{꒱}}$
