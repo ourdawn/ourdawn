@@ -8,9 +8,9 @@ ${\color{#c11d1d}\text{꒰ mostly dniuf. feel free to c*h though ꒱}}$
 
 ${\color{#720000}\text{꒰ i int when i want to} ꒱}$
 
-${\color{#720000}\text{꒰ mentally unwell ꒱}}$
+${\color{5c0000}\text{꒰ mentally unwell ꒱}}$
 
-${\color{#450000}\text{꒰ dont associate me wit my friends drama ok ꒱}}$
+${\color{#5c0000}\text{꒰ dont associate me wit my friends drama ok ꒱}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wyqii2yv25vqqczmqmjgl54kf4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=7a0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
