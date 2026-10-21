@@ -20,7 +20,7 @@ ${\color{#720000}\text{dont associate me wit my friends drama}}$
   <summary><b> mi links </b></summary>
   <br>
 
-${\color{#720000}\text{꒰}}$ [sign mi wall](https://walloftext.co/triple-kill) ${\color{#720000}\text{+}}$ [and mi ata](https://ppathetic.atabook.org/) ${\color{#720000}\text{꒱}}$
+${\color{#720000}\text{꒰}}$ [wall](https://walloftext.co/triple-kill) ${\color{#720000}\text{+}}$ [ata](https://ppathetic.atabook.org/) ${\color{#720000}\text{꒱}}$
 
 ${\color{#720000}\text{꒰}}$ [info 𓏻 pronouns 𓏻 dni](https://pronouns.cc/@killl) ${\color{#720000}\text{꒱}}$
 
