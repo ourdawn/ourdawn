@@ -1,5 +1,13 @@
 <div align="center">
 
+i quit/taking a VERY long break
+
+in short terms, i hate pt with my full heart, it has made me go crazy and made me mentally unstable
+
+as much as i like making ponies & friends. This is for my own mental health and such
+
+so.. yeah, bye everyone < :(
+
 ${\color{#c11d1d}\text{꒰}}$ ![Visitors](https://api.visitorbadge.io/api/visitors?path=ourdawn&label=kills&labelColor=%23720000&countColor=%23000000&style=flat-square) ${\color{#c11d1d}\text{꒱}}$
 
 ${\color{#c11d1d}\text{꒰ im below 14 ꒱}}$
